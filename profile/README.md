@@ -1,1 +1,1 @@
-# ✨ Happening Magic ✨
+# ✨ Magic Happens ✨
